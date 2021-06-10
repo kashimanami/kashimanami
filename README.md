@@ -1,3 +1,11 @@
+<p align="left"> 
+  <a href="https://github.com/kashimanami/kashimanami/">
+    <img src="https://komarev.com/ghpvc/?username=kashimanami" alt="kashimanami" />
+  </a>
+  <a href="https://github.com/kashimanami">
+    <img height="20" src="https://img.shields.io/github/followers/kashimanami?label=follow&logo=github&style=flat" />
+  </a>
+</p>
 Hey, I'm Nami Kashima🙌  
 It's my 2nd year working full time.
 
