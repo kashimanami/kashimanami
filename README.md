@@ -1,4 +1,4 @@
-[![trophy](https://github-profile-trophy.vercel.app/?username=ryo-ma)](https://github.com/ryo-ma/github-profile-trophy)
+[![trophy](https://github-profile-trophy.vercel.app/?username=kashimanami)](https://github.com/kashimanami/github-profile-trophy)
 
 Hey, I'm Nami Kashima🙌  
 It's my 2nd year working full time.
