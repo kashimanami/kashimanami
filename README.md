@@ -5,7 +5,7 @@ It's my 2nd year working full time.
 
 🏠   I'm currently working at Japan,Osaka.  
 🌱   I'm studying to speak English🔰  
-💗   Fun fact: makeup🎀, cosplay👘, anime📺, sweets🍮
+💗   Fun fact: cosplay👘, anime📺, sweets🍮
 
 ___  
 <h4 align="left">Languages and Tools:</h4>
