@@ -2,8 +2,9 @@
 ___
 Hey, I'm Nami Kashima🙌  
 It's my 2nd year working full time.
+I'll move to Tokyo!
 
-🏠   I'm currently working at Japan,Osaka.  
+🏠   I'm working at Japan,Osaka.  
 🌱   I'm studying to speak English🔰  
 💗   Fun fact: cosplay👘, anime📺, sweets🍮
 
