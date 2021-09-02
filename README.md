@@ -1,7 +1,7 @@
 [![trophy](https://github-profile-trophy.vercel.app/?username=kashimanami&rank=SECRET,SSS,SS,S,AAA,AA,A,B,C)](https://github.com/kashimanami/github-profile-trophy)
 ___
 Hey, I'm Nami Kashima🙌  
-It's my 2nd year working full time.  
+It's my 2nd year working.  
 I'll move to Tokyo!
 
 🏠   I'm working at Japan,Tokyo.  
