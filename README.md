@@ -1,12 +1,12 @@
 [![trophy](https://github-profile-trophy.vercel.app/?username=kashimanami&rank=SECRET,SSS,SS,S,AAA,AA,A,B,C)](https://github.com/kashimanami/github-profile-trophy)
 ___
 Hey, I'm Nami Kashima🙌  
-It's my 2nd year working.  
-I'll move to Tokyo!
+It's 24years old.  
 
 🏠   I'm working at Japan,Tokyo.  
 🌱   I'm studying to speak English🔰  
-💗   Fun fact: cosplay👘, anime📺, sweets🍮
+💗   Fun fact: Cosplay👘, Anime📺, Sweets🍮  
+Thank you!  
 
 ___  
 <h4 align="left">Languages and Tools:</h4>
