@@ -4,7 +4,6 @@ Hey, I'm Nami🙌
 
 🏠   I'm working at Japan,Tokyo.  
 🌱   I'm studying to speak English🔰  
-💗   Fun fact: Cosplay👘, Anime📺, Sweets🍮  
 
 Thank you!  
 
